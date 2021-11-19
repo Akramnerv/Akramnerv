@@ -1,7 +1,5 @@
 - 👋 Hi, I’m @Akramnerv
 - 👀 I’m interested in Soccer, Stocks, RealEstate and IT;
-- 🌱 I’m currently learning Java;
-- 💞️ I’m looking to collaborate on Scrum Team;
 - 📫 How to reach me DM me :)
 
 <!---
