@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Akramnerv
-- 👀 I’m interested in Soccer, Stocks, RealEstate and IT;
+- 👀 I’m interested in Soccer, Stocks, Real Estate and IT
 - 📫 How to reach me DM me :)
 
 <!---
